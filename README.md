@@ -19,6 +19,7 @@ Thursday, June 23, 2015 from 1 pm
 
 360 Hooker St, Denver, CO 80219
 
+[集合場所はこちらの地図の ☆Picnic Area 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Barnum%20Park.pdf)
 
 * __What to bring?__
 
