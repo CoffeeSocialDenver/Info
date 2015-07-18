@@ -5,7 +5,7 @@
 
 (以下の表を参考に、出来れば大人1人当たり1品をお願いします。)
 
-<a href="mailto:tomoko.kd☆gmail.com?subject=Farewell Potluck Picnic @ Barnum Park">参加表明はこちらから　(アドレス蘭で　"☆" -> "@" の変更をお願いします)</a>
+<a href="mailto:tomoko.kd☆gmail.com?subject=Farewell Potluck Picnic @ Barnum Park">参加表明はこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
 
 
 * __When?__ 
