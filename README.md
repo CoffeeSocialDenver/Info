@@ -1,5 +1,9 @@
 #### 女性サークル茶話会からのご案内
 ## Potluck Picnic @ Ruby Hill Park, Denver
+暑気払いにはちょっと遅いタイミングですが、戸外でおしゃべりしながら週末の午後を過ごしませんか？  
+
+![alt text](http://static1.squarespace.com/static/50940f26e4b05d6afda39c71/t/509aa126e4b0472f6bf1bcdc/1352311079199/20111024__pavillion%7Ep1.jpg?format=750w)
+
 ご家族やお友達とご一緒の参加をお待ちしています。
 
 メールで参加予定人数と持ってきていただける物をお知らせ下さい。
@@ -20,7 +24,7 @@ Saturday, August 29, 2015 from 1 pm
 
 1200 W Florida Ave, Denver, CO 80223
 
-[集合場所はこちらの地図の ☆Picnic Area 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Ruby%20Hill%20Park.pdf)
+[集合場所はこちらの地図の ☆Picnic Area 2 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Ruby%20Hill%20Park.pdf)
 
 * __What to bring?__
 
@@ -34,6 +38,10 @@ Saturday, August 29, 2015 from 1 pm
 #### 参加予定者　(随時更新していきます。)
 | 名前　|大人|子供| 持ち寄る物|
 |--------:|---:|---:|:---------:|
+| 小山朋子| 2| |煮玉子、プレート、ペーパーナプキン |
+| | | | |
+| | | | |
+| | | | |
 | | | | |
 | | | | |
 | | | | |
