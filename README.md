@@ -11,7 +11,7 @@
 
 (以下の表を参考に、市販品でかまいませんので1品以上ご持参ください。)
 
-<a href="mailto:tomoko.kd☆gmail.com?subject=New Year Party">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
+<a href="mailto:tomoko.kd☆gmail.com?subject=New Year Party&cc=rena.rajnak@gmail.com">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
 
 ---
 
