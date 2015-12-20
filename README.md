@@ -1,12 +1,12 @@
 #### 女性サークル茶話会からのご案内
 ## ポットラック新年会 2016
 
- ![NewYearParty](http://2.bp.blogspot.com/-vQZWo4zmoIA/UL7tzmF7ErI/AAAAAAAAHto/6W3PYFZkB2o/s1600/shinnenkai_title.png)
- 
 ピクニックが好評だったことを受けて、ポットラックで新年会を開催します。
 会場はいつものスターバックスの近く、ライナック玲菜(れな) さんのところのコミュニティスペース(?)です。
 ご家族やお友達とご一緒の参加をお待ちしています。
 
+![NewYearParty](http://2.bp.blogspot.com/-vQZWo4zmoIA/UL7tzmF7ErI/AAAAAAAAHto/6W3PYFZkB2o/s1600/shinnenkai_title.png)
+ 
 メールで参加予定人数と持ってきていただける物をお知らせ下さい。
 
 (以下の表を参考に、市販品でかまいませんので1品以上ご持参ください。)
