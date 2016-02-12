@@ -12,7 +12,7 @@
 
 市販品で構いませんので、1家族で1品以上ご持参ください。
 
-<a href="mailto:tomoko.kd☆gmail.com?subject=New Year Party">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
+<a href="mailto:tomoko.kd☆gmail.com?subject=Potluck Party">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
 
 ---
 
