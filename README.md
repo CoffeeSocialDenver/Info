@@ -1,34 +1,30 @@
 #### 女性サークル茶話会からのご案内
-## 春のポットラックパーティー
+## Potluck Picnic @ Ruby Hill Park, Denver
+フィンランドでは夏至のお祝いがビッグイベントだそうです。私たちもピクニックしながら夏の午後を楽しみましょう。  
 
-今年2回目のポットラックパーティーです。
+![alt text](http://static1.squarespace.com/static/50940f26e4b05d6afda39c71/t/509aa126e4b0472f6bf1bcdc/1352311079199/20111024__pavillion%7Ep1.jpg?format=750w)
+
 ご家族やお友達とご一緒の参加をお待ちしています。
 
-会場は前回に引き続き、ライナック玲菜(れな) さんのお住まい併設のコミュニティスペースです。
+メールで参加予定人数と持ってきていただける物をお知らせ下さい。
 
-![PotluckParty](http://40.media.tumblr.com/tumblr_m7a0ubOieR1rvvas1o1_500.png)
- 
-何を持っていこうか悩むのはとりあえず後回しにして、まずはメールで参加表明を！
+(以下の表を参考に、市販品でかまいませんので1品以上ご持参ください。)
 
-市販品で構いませんので、1家族で1品以上ご持参ください。
+<a href="mailto:tomoko.kd☆gmail.com?subject=Potluck Picnic @ Ruby Hill Park">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
 
-<a href="mailto:tomoko.kd☆gmail.com?subject=Potluck Party">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
-
----
 
 * __When?__ 
 
-####Saturday, March 5, 2016 from 1 pm
+Saturday, June 25, 2016 from 1 pm　（悪天が予想される場合は、翌週に延期する可能性があります。）
 
 
 * __Where?__ 
 
-[STEELE CREEK](https://www.google.com/maps/place/3222+E+1st+Ave/@39.7177797,-104.9516643,17z/data=!4m3!3m2!1s0x876c7e9a1e7e56df:0x21aca4b62f513fa9!4b1 "Where?")
+[Ruby Hill Park](https://www.google.com/maps/place/Ruby+Hill+Park/@39.6858296,-105.0043237,16z/data=!3m1!4b1!4m2!3m1!1s0x876c7fa3495e7ab7:0x9d3da3ab45c18b98 "Where?")
 
-3222 E 1st. Ave. Denver, Colorado 80206
+1200 W Florida Ave, Denver, CO 80223
 
-パーキングはストリートパーキングになります。向かいのSafewayは警備員が巡回しているときがありますので、駐車は避けてください。Cherry Creek Shopping Centerの駐車場はパーキング可能です。ロビーにコンシェルジェがいますので、エレベーターで5Fのコミュニティスペースまでお越しください。（コミュニティスペースが他の方に予約されると、会場は7Fのプレイルームに変更になります。）
-もしコンシェルジェがいない場合は、玲菜さん (808) 721-7851に連絡をお願いします。
+[集合場所はこちらの地図の ☆Picnic Area 2 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Ruby%20Hill%20Park.pdf)
 
 * __What to bring?__
 
@@ -42,14 +38,5 @@
 #### 参加予定者　(随時更新していきます。)
 | 名前　|大人|子供| 持ち寄る物|
 |--------:|---:|---:|:---------:|
-| 小山朋子| 2| | ちらし寿司・洋梨のタルト|
-| ライナック玲菜| 2| 1| ヘムルパジョン(海鮮チヂミ)|
-| グロス敬子(のりこ)| 2| | パスタ(ロッティーニ)サラダ|
-| ハインズ敏子| 1| | 巻き寿司|
-| 井村実紀子| 2| | どら焼き|
-| 吉原純奈| 2| | 飲み物|
-| バーデンともみ| 1| 2| リーフサラダ&フラン|
-| コステロ雅美| 1| | |
-| サイバート文子| 1| | |
-| ジェルベ美和| 2| 2| 鶏のから揚げ|
+| | | | |
 | | | | |
