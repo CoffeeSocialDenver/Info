@@ -1,6 +1,6 @@
 #### 女性サークル茶話会からのご案内
 ## Midsummer Potluck Picnic @ Ruby Hill Park, Denver
-フィンランドでは夏至のお祝いがビッグイベントだそうです。私たちもピクニックしながら夏の午後を楽しみましょう。  
+北欧では夏至のお祝いがビッグイベントだそうです。私たちもピクニックしながら夏の午後を楽しみましょう。  
 
 ![alt text](http://static1.squarespace.com/static/50940f26e4b05d6afda39c71/t/509aa126e4b0472f6bf1bcdc/1352311079199/20111024__pavillion%7Ep1.jpg?format=750w)
 
