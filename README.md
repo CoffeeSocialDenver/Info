@@ -1,6 +1,6 @@
 #### 女性サークル茶話会からのご案内
-## Summer Potluck Picnic @ Ruby Hill Park, Denver
-暑気払いのポットラックパーティーです。おしゃべりしながら夏の午後を楽しみましょう！
+## Autumn Potluck Picnic @ Ruby Hill Park, Denver
+紅葉(コロラドでは黄葉?!)の季節にはまだちょっと早いですが、食欲の秋をみんなで楽しみましょう！
 
 ![alt text](http://static1.squarespace.com/static/50940f26e4b05d6afda39c71/t/509aa126e4b0472f6bf1bcdc/1352311079199/20111024__pavillion%7Ep1.jpg?format=750w)
 
@@ -15,14 +15,14 @@
 
 * __When?__ 
 
-Saturday, August 6, 2016 from 1 pm　（悪天が予想される場合は、翌週に延期する可能性があります。）
+Saturday, October 1, 2016 from 1 pm　（悪天が予想される場合は、翌週に延期する可能性があります。）
 
 
 * __Where?__ 
 
 [Ruby Hill Park](https://www.google.com/maps/place/Ruby+Hill+Park/@39.6858296,-105.0043237,16z/data=!3m1!4b1!4m2!3m1!1s0x876c7fa3495e7ab7:0x9d3da3ab45c18b98 "Where?")
 
-1200 W Florida Ave, Denver, CO 80223
+1200 W Florida Ave, Denver, CO 80223 (S Osage St & W Florida Ave または S Pecos St & W Mexico Ave からお入り下さい。）
 
 [集合場所はこちらの地図の ☆Picnic Area 2 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Ruby%20Hill%20Park.pdf)
 
@@ -38,10 +38,9 @@ Saturday, August 6, 2016 from 1 pm　（悪天が予想される場合は、翌�
 #### 参加予定者　(随時更新していきます。)
 | 名前　|大人|子供| 持ち寄る物|
 |--------:|---:|---:|:---------:|
-| 小山朋子| 1| | タンドーリ風チキン、アルゴビ、ナン、お皿、手作りカルピス|
-| ハインズ敏子| 1| | |
-| 井村実紀子| 1| | アップルパイ|
-| 鹿見ホワイト阿甲| 1| | カトラリー類、飲み物、チーズプラッター、サラダ、スイカ|
-| ライナック玲菜| 1| 1| 味噌キュウリスティック、黒ごまきな粉わらび餅|
-| モートン加代子| 1| | サルサとチップ|
-| サイバート文子| 1| | |
+| 小山朋子| 2| | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |
