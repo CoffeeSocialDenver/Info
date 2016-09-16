@@ -10,7 +10,7 @@
 
 (以下の表を参考に、市販品でかまいませんので1品以上ご持参ください。)
 
-<a href="mailto:tomoko.kd☆gmail.com?subject=Potluck Picnic @ Ruby Hill Park">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
+<a href="mailto:tomoko.kd☆gmail.com?subject="Autumn Potluck Picnic">参加表明メールはこちらから　(アドレス欄で　"☆" -> "@" の変更をお願いします)</a>
 
 
 * __When?__ 
