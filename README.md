@@ -25,7 +25,7 @@ Saturday, June 3, 2017 from 1 pm
 1200 W Florida Ave, Denver, CO 80223  
 (GPSナビの設定は、入り口のS Osage St & W Florida Ave が良さそうです。）
 
-[集合場所はこちらの地図の ☆Picnic Area 2 付近](http://www.denvergov.org/portals/747/documents/parkart/ParkArt_Ruby%20Hill%20Park.pdf)
+[集合場所はこちらの地図の ☆Picnic Area 4 付近](https://www.denvergov.org/content/dam/denvergov/Portals/747/documents/ParkArt/ParkArt_Ruby%20Hill%20Park.pdf)
 
 * __What to bring?__
 
@@ -36,7 +36,7 @@ Saturday, June 3, 2017 from 1 pm
 プレート・飲み物用カップ・使い捨てのカトラリー類・ペーパーナプキン・氷  
 ピクニックテント・ピクニックテーブル・ピクニックチェア・ブランケット・クッションなど  
 
-***およそ100ドルの費用を抑えるために、パビリオンにあるピクニックテーブルのリザーブはしません。当日トイレ前のテーブルは空いている可能性が高いですが、芝生上でものんびり出来るようにシェードが作れるものやピクニックテーブル&チェア、ブランケット、クッションなどある方はぜひお持ち下さい。***
+***およそ100ドルの費用を抑えるために、パビリオンにあるピクニックテーブルのリザーブはしません。当日トイレ前のテーブルは空いている可能性が高いですが、芝生の上でものんびり出来るようにシェードが作れるものやピクニックテーブル&チェア、ブランケット、クッションなどある方はぜひお持ち下さい。***
 
 ***
 #### 参加予定者　(随時更新していきます。)
