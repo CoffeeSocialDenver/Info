@@ -1,9 +1,9 @@
 #### 女性サークル茶話会からのご案内
-## June Potluck Picnic @ Ruby Hill Park, Denver
-そろそろ長い夏のはじまりです。
-シーズン初のピクニックをおしゃべりしながら楽しみましょう。  
+## July Potluck Picnic @ Philip S. Miller Park, Castle Rock
+会場を変更してピクニックを開催します。
+デンバー中心部からは遠くなってしまいますが、すぐ近くに[zip line](http://www.castlerockziplinetours.com/index.html)やトレイルがあるので一日中楽しんでいただけると思います。  
 
-![alt text](http://static1.squarespace.com/static/50940f26e4b05d6afda39c71/t/509aa126e4b0472f6bf1bcdc/1352311079199/20111024__pavillion%7Ep1.jpg?format=750w)
+![alt text](http://www.crgov.com/ImageRepository/Path?filePath=%2FDocuments%5CContent%5C444%5C759%5C801%2FBathroom+and+Splashpad+by+Pavilions.jpg)
 
 ご家族やお友達とご一緒の参加をお待ちしています。
 
@@ -15,17 +15,17 @@
 
 * __When?__ 
 
-Saturday, June 3, 2017 from 1 pm  
+Saturday, July 29, 2017 from noon  
 （悪天が予想される場合は延期の可能性があります。）
 
 * __Where?__ 
 
-[Ruby Hill Park](https://www.google.com/maps/place/Ruby+Hill+Park/@39.6858296,-105.0043237,16z/data=!3m1!4b1!4m2!3m1!1s0x876c7fa3495e7ab7:0x9d3da3ab45c18b98 "Where?")
+[Philip S. Miller Park](https://www.google.com/maps/place/Phillip+S.+Miller+Park/@39.3703014,-104.8869788,15z/data=!4m13!1m7!3m6!1s0x876c9842fb40e3d1:0x3b3587c205484d0a!2sPhilip+S.+Miller+Park,+1375+W+Plum+Creek+Pkwy,+Castle+Rock,+CO+80109!3b1!8m2!3d39.3703014!4d-104.8782241!3m4!1s0x876c984256d2529f:0xaef72f7e0600fb4b!8m2!3d39.3698155!4d-104.8785796 "Where?")
 
-1200 W Florida Ave, Denver, CO 80223  
-(GPSナビの設定は、入り口のS Osage St & W Florida Ave が良さそうです。）
+1375 W. Plum Creek Parkway, Castle Rock, CO 80109
+(I-25 exit 181から西におよそ0.5マイルです。）
 
-[集合場所はこちらの地図の ☆Picnic Area 4 付近](https://www.denvergov.org/content/dam/denvergov/Portals/747/documents/ParkArt/ParkArt_Ruby%20Hill%20Park.pdf)
+[集合場所はpavilionのいずれか](http://www.crgov.com/2634/The-Plaza)
 
 * __What to bring?__
 
@@ -36,23 +36,13 @@ Saturday, June 3, 2017 from 1 pm
 プレート・飲み物用カップ・使い捨てのカトラリー類・ペーパーナプキン・氷  
 ピクニックテント・ピクニックテーブル・ピクニックチェア・ブランケット・クッションなど  
 
-** 6月2日午後2時現在、パビリオン内のピクニックテーブルは利用可能です。**  
-***およそ100ドルの費用を抑えるために、パビリオンにあるピクニックテーブルのリザーブはしません。  
-当日トイレ前のテーブルは空いている可能性が高いですが、芝生の上でものんびり出来るようにシェードが作れるものやピクニックテーブル&チェア、ブランケット、クッションなどある方はぜひお持ち下さい。***
-
 ***
 #### 参加予定者　(随時更新していきます。)
 | 名前　|大人|子供| 持ち寄る物|
 |--------:|---:|---:|:---------:|
-| 小山朋子| 2| | 鶏胸肉の中華風サラダ・にんじん混ぜご飯|
-| デヴァイン理恵| 2| | いなり寿司|
-| バーデンともみ| 1| 2| メロン|
-| 井村実紀子| 1| | チップス＆ディップ|
-| ライナック玲菜| 2| 2| 惣菜パンとポンデケージョ|
-| イサミ麻亜沙| 2| 1| フルーツサンドと紙皿|
-| ユーリックちえ| 2| 1| スイカとジュース|
-| 吉原純奈| 2| 1| パスタサラダ又はveggie platter|
-| マーゲッツ広美| 2| | ハムパン|
-| サイバート文子| 1| 1| サワースイートチキンライス|
-| 島津晶子| 1| | |
-| レナード佳保里| 2| | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |
