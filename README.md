@@ -1,7 +1,10 @@
 #### 女性サークル茶話会からのご案内
-## July Potluck Picnic @ Philip S. Miller Park, Castle Rock
-会場を変更してピクニックを開催します。
-デンバー中心部からは遠くなってしまいますが、すぐ近くに[zip line](http://www.castlerockziplinetours.com/index.html)やトレイルがあるので一日中楽しんでいただけると思います。  
+## Fall Potluck Picnic @ Philip S. Miller Park, Castle Rock
+前回と同様、Castle Rockの公園で開催します。
+具体的な集合場所は、pavilionかMillhouseのパティオを考えていますが、あらためてこのページでアナウンスする予定です。
+
+デンバー中心部からは遠くなってしまいますが、すぐ近くに[zip line](http://www.castlerockziplinetours.com/index.html)やトレイルがあるので一日中楽しんでいただけると思います。[また当日夕方から、無料コンサートがあるようです。](http://visitcastlerock.org/event/tunes-trails-perks-parks-free-concerts-john-adams-tribute-john-denver-amphitheater-philip-s-miller-park/?instance_id=249811)
+
 
 ![alt text](http://www.crgov.com/ImageRepository/Path?filePath=%2FDocuments%5CContent%5C444%5C759%5C801%2FBathroom+and+Splashpad+by+Pavilions.jpg)
 
@@ -15,7 +18,7 @@
 
 * __When?__ 
 
-Saturday, July 29, 2017 from noon  
+Saturday, October 7, 2017 from noon  
 （悪天が予想される場合は延期の可能性があります。）
 
 * __Where?__ 
@@ -25,7 +28,7 @@ Saturday, July 29, 2017 from noon
 1375 W. Plum Creek Parkway, Castle Rock, CO 80109
 (I-25 exit 181から西におよそ0.5マイルです。）
 
-[集合場所はpavilionのいずれか](http://www.crgov.com/2634/The-Plaza)
+[とりあえずの集合場所はpavilionのいずれか](http://www.crgov.com/2634/The-Plaza)
 
 * __What to bring?__
 
@@ -39,9 +42,6 @@ Saturday, July 29, 2017 from noon
 #### 参加予定者　(随時更新していきます。)
 | 名前　|大人|子供| 持ち寄る物|
 |--------:|---:|---:|:---------:|
-| 小山朋子| 2| | タイ風焼き鳥・油みそ(長野の郷土料理)・紙皿・カトラリー・ペーパーナプキン|
-| ドハティー有紀| 2| 1| フレッシュトマトとツナの冷製パスタとポテトチッップス|
-| 鹿見ホワイト阿甲| 1| | ポテトサラダ|
-| バーデンともみ| 1| 2| いなり寿司|
+| 小山朋子| | | 油みそ(長野の郷土料理)・紙皿・カトラリー・ペーパーナプキン|
 | | | | |
 | | | | |
