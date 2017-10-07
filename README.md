@@ -1,7 +1,7 @@
 #### 女性サークル茶話会からのご案内
 ## Fall Potluck Picnic @ Philip S. Miller Park, Castle Rock
 前回と同様、Castle Rockの公園で開催します。
-具体的な集合場所は、pavilionかMillhouseのパティオを考えていますが、あらためてこのページでアナウンスする予定です。
+12時半まで団体でのpavilionを利用予約が入っていましたが、その後は空きがありそうです。。
 
 デンバー中心部からは遠くなってしまいますが、すぐ近くに[zip line](http://www.castlerockziplinetours.com/index.html)やトレイルがあるので一日中楽しんでいただけると思います。[また当日夕方から、無料コンサートがあるようです。](http://visitcastlerock.org/event/tunes-trails-perks-parks-free-concerts-john-adams-tribute-john-denver-amphitheater-philip-s-miller-park/?instance_id=249811)
 
